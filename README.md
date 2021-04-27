@@ -1,4 +1,4 @@
-[![Slam](https://telegra.ph/file/f97dbe52637f36409c0d7.jpg)](https://t.me/request_ayush)
+[![Slam](https://telegra.ph/file/f97dbe52637f36409c0d7.jpg)](https://t.me/Diclonius)
 
 owner of this repo :- [AYUSH](https://github.com/ayushteke)
 
